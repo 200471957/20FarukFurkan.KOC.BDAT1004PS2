@@ -1,1 +1,1 @@
-# 20FarukFurkan.KOC.BDAT1004PS2
+# FarukFurkan.KOC.BDAT1004PS2
